@@ -4,3 +4,6 @@
 
  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎<a href="https://derlordd.straw.page">strawpage</a> <a href="https://www.pinterest.com/IHasAFaceLOLZ/_profile/_created/">pinterest</a> <a href="https://colormytree.me/2025/01JEC814Z17N313WYXXGZKEZJ7">color my tree!!</a>
 ‎
+
+
+<img width="2450" height="1439" alt="image" src="https://github.com/user-attachments/assets/5cf071d3-84be-46ea-91e3-9f7ae521cdd2" />
